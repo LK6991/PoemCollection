@@ -17,7 +17,11 @@ Red axe, white face,
 heavy equipment and swords,
 why would you do it?
 Stay away from their reasons,
-stop seeking the Glory
+stop seeking the Glory.
+
+Why did you do it?
+I warned you,
+don't follow their agony.
 
 
 
