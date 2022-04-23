@@ -14,6 +14,7 @@ water is running through both.
 only appearing to the branch named "SecondBranch" )
 
 Red axe, white face,
+heavy equipment and swords,
 why would you do it?
 Stay away from their reasons,
 stop seeking the Glory
