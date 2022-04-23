@@ -11,12 +11,12 @@ water is running through both.
 2.
 
 (This is an alternative version of my second poem,
-only appearing to the branch names "SecondBranch" )
+only appearing to the branch named "SecondBranch" )
 
 Red axe, white face,
 why would you do it?
 Stay away from their reasons,
-stop seeking the glory
+stop seeking the Glory
 
 
 
