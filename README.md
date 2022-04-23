@@ -10,6 +10,13 @@ water is running through both.
 
 2.
 
+(This is an alternative version of my second poem,
+only appearing to the branch names "SecondBranch" )
+
 Red axe, white face,
-why did you do it?
-Don't follow their agony.
+why would you do it?
+Stay away from their reasons,
+stop seeking the glory
+
+
+
