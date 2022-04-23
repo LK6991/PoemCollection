@@ -2,5 +2,8 @@
 My collection of poems - GitHub playlist
 
 
-First poem of collection - trying "commit" function.
-Commit = Save.
+1)
+
+River is a flow,
+sky is blue,
+water is running through both.
