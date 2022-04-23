@@ -16,7 +16,11 @@ only appearing to the branch named "SecondBranch" )
 Red axe, white face,
 why would you do it?
 Stay away from their reasons,
-stop seeking the Glory
+stop seeking the Glory.
+
+Why did you do it?
+I warned you,
+don't follow their agony.
 
 
 
