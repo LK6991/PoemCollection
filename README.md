@@ -35,9 +35,11 @@ air could be dangerous.
 
 Fire in my dream,
 it wasn't red but purple,
-I could stand above it and say,
-This is magic,
-My feelings were cold,
+She stand above it and said,
+This is bold,
+My feelings weren't here,
 but you made me cry again.
+This is cold,
+Come back to my fireplace.
 
 
