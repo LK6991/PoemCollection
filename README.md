@@ -24,4 +24,13 @@ I warned you,
 don't follow their agony.
 
 
+4.
+
+Fire in my dream,
+it wasn't red but purple,
+I could stand above it and say,
+This is magic,
+My feelings were cold,
+but you made me cry again.
+
 
