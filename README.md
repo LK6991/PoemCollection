@@ -23,6 +23,13 @@ Why did you do it?
 I warned you,
 don't follow their agony.
 
+3.
+
+Earth day, mother day,
+different words same entity,
+take care of the Roots,
+air could be dangerous.
+
 
 4.
 
