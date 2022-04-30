@@ -6,7 +6,7 @@ My collection of poems - GitHub playlist
 Flow like a river,
 sing into the Fires,
 let the blue skies
-melt through your body.
+melt again!
 
 
 
