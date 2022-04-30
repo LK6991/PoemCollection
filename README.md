@@ -1,5 +1,5 @@
 # PoemCollection
-My collection of poems - GitHub playlist
+My collection of poems - GitHub experiments
 
 
 1.
@@ -19,5 +19,12 @@ Flow like a river,
 sing into the Fires,
 let the blue skies
 melt again!
+
+2.
+
+Their thoughts were heavy, 
+the sea turned indigo,
+I am now getting lighter,
+I left from the crossroads.
 
 
