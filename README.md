@@ -25,6 +25,6 @@ melt again!
 Their thoughts were heavy, 
 the sea turned indigo,
 I am now getting lighter,
-I left from the crossroads.
+I left from the crossroads!
 
 
